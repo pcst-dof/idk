@@ -90,8 +90,8 @@ _Как он тут оказался - неизвестно, но известн
 ---
 
 ### ▫️| Контакты, по которым вы можете связаться со мной:
-**электронная почта**: milana.zuranova@gmail.com
+ **электронная почта**: milana.zuranova@gmail.com
 
-**телеграмм**: https://t.me/writls
+ **телеграмм**: https://t.me/writls
 
-**вк**: https://vk.com/writles
+ **вк**: https://vk.com/writles
